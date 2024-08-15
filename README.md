@@ -1,4 +1,4 @@
-# Welcome to Cartified Ecommerce Webstie Series
+# Welcome to Yeezy Ecommerce Webstie Series
 
 ## Follow the 3 Steps and your good to go.
 
